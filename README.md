@@ -2,4 +2,4 @@
 
 ### This is currently a WIP. Enjoy this GIF for now.
 
-![rick](https://user-images.githubusercontent.com/6115588/135988662-23d1130f-f1cb-4fb5-8d34-884a21207760.png)
+![rick](https://i.pinimg.com/originals/e2/8e/c9/e28ec92dea750c11082236b1ecfa8c5d.gif)
